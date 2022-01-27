@@ -1,2 +1,1 @@
-# eqee
-joke progam for ur friends free nitro
+warning This might ruin ur friendship or it will delete the discord app
